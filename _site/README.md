@@ -1,4 +1,4 @@
-karissalightsmith.github.io
+montessoriopen.github.io
 =====================
 
 Montessori belongs in the world
